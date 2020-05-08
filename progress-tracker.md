@@ -4,6 +4,8 @@
 
 (*Cross out when complete*)
 
+[Markdown Cheatsheet](https://www.markdownguide.org/cheat-sheet/) for any forgotten syntax
+
 * Paragraphs.
 * ~~Headers.~~ 
 * Links between the markdown pages.
