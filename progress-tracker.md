@@ -16,3 +16,5 @@
 * ~~Some text that is bolded.~~
 * ~~Some text that is italicized.~~
 * ~~A block of code.~~
+
+[Markdown Cheatsheet](https://www.markdownguide.org/cheat-sheet/) for any forgotten syntax
