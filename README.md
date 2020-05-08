@@ -1,5 +1,6 @@
 # Claytons-Repo
-**Final project for INFOTC1000
+
+**Final project for INFOTC1000**
 
 [Progress Tracker](https://github.com/Clayton-Lieberman/Claytons-Repo/blob/master/progress-tracker.md)
 
