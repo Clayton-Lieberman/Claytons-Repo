@@ -15,4 +15,10 @@ Burrow has a winning pedigree. National Champion, Heisman, and most recently 1st
 
 ![alt text](https://images2.minutemediacdn.com/image/fetch/w_850,h_560,c_fill,g_auto,f_auto/https%3A%2F%2Fnflspinzone.com%2Fwp-content%2Fuploads%2Fgetty-images%2F2016%2F04%2F1025653964-1-850x560.jpeg)
 
-A contraversial pick by the Packers, Love is seen as the successor to future HOFer Aaron Rogers. As a quarterback, Love is...inconsistant. He threw 32 TD's and 6 INT's his sophemore year. Very impressive. His junior year, his numbers dropped significantly: 20 TD's, 17 INT's. This is concerning to many. 
+A contraversial pick by the Packers, Love is seen as the successor to future HOFer Aaron Rogers. As a quarterback, Love is...inconsistant. He threw 32 TD's and 6 INT's his sophemore year. Very impressive. His junior year, his numbers dropped significantly: 20 TD's, 17 INT's. This is concerning to many. Love seems like a classic case of high ceiling but high bust potential. The most interesting thing about the young QB is his destinination. The Packers, who are pretty set at the QB position, take Love instead of a receiver--a much greater need. This undoubtably irked Rogers who previously made comments about hoping for a playmaker or skill player. Moreover, the move hints at the Packers starting to push Rogers out of the door.
+
+**4. Justin Herbert**
+
+![alt text](https://imagecomposer.nfl.com/?l=http://static.nfl.com/static/content/static/img/combine/2020/headshots/1400x1000/2563921.png&f=png&w=308&c=71)
+
+HOT TAKE ALERT: This kid is a BUM! He will bust. This might look really bad if he ends up being good but I do not see him adapting to the NFL well. He is great downfield passer but struggles short and middle range. This is indicative in my mind of questionable accuracy that will be taken advantage of in NFL. Height and arm strength can only take you so far. 
